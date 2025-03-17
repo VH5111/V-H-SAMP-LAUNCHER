@@ -8,7 +8,7 @@
 
 - Download [MODS AND CLEO CONFIGS](https://github.com/VH5111/SAMP-BY-V-H/raw/main/mods%20and%20configs.zip)
 
-JOIN OUR [SUPPORT SERVER](https://discord.gg/xXkDRH44Ha)
+JOIN OUR [SUPPORT SERVER](https://dsc.gg/dcafe)
 
 THANKS FOR DOWNLOAD V H SA-MP LAUNCHER
 
